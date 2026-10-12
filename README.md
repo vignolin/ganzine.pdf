@@ -1,1 +1,0 @@
-# ganzine.pdf
